@@ -1,0 +1,2 @@
+# media quries asignment
+
